@@ -1,1 +1,0 @@
-# Fuhyeah-script-
